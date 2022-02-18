@@ -19,3 +19,10 @@ Wine (I like wines from Nagano and Yamanashi).
 
 Coffee (I like Komuro Special from Yanaka Coffee).  
 https://www.yanaka-coffeeten.com/  
+
+🥌Favorite motto.
+```
+I’m a good programmer.
+I have confidence.
+Let’s have fun!
+```
