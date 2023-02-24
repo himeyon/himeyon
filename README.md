@@ -19,3 +19,6 @@ Wine (I like wines from Nagano and Yamanashi).
 
 Coffee (I like Komuro Special from Yanaka Coffee).  
 https://www.yanaka-coffeeten.com/  
+
+Have a humble heart and do not harm others.
+Be kind to others.
