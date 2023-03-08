@@ -4,7 +4,7 @@
 
 ![Top Languages Card](https://github-readme-stats.vercel.app/api/top-langs/?username=himeyon)
 
-This account is used primarily for information gathering.
+This account is used primarily for information gathering.  
 We do not accept scouting or any other type of information. 
 
 My hobbies are  
