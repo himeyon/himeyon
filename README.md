@@ -4,9 +4,8 @@
 
 ![Top Languages Card](https://github-readme-stats.vercel.app/api/top-langs/?username=himeyon)
 
-              
-My name is Mizuki Katagiri and I look forward to working with you.  
-I was born and raised in Nagaoka City, Niigata Prefecture, Japan, but I lived in Mie Prefecture when I was a student and in Saitama Prefecture for about 10 years after joining TaKT.  
+This account is used primarily for information gathering.
+We do not accept scouting or any other type of information. 
 
 My hobbies are  
 Rugby (Used to be a player, now I'm a spectator).  
