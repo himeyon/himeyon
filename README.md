@@ -21,3 +21,5 @@ https://www.yanaka-coffeeten.com/
 
 Have a humble heart and do not harm others.
 Be kind to others.
+
+https://www.credly.com/badges/883f7497-2878-4b56-8e39-8e9a8dc15751
